@@ -9,3 +9,13 @@ Mobile layout
 
 ![image](https://github.com/user-attachments/assets/33da907a-d684-47f7-a793-d42daaccdc88)
 
+Dashboard for Product Sales Performance
+
+![image](https://github.com/user-attachments/assets/ba076627-c75d-4a6b-ab09-230f43edbfe2)
+
+Mobile Layout
+
+![image](https://github.com/user-attachments/assets/82a186d0-e375-46f5-8f12-c94429b0771f)
+
+
+
