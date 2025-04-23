@@ -20,6 +20,7 @@ Mobile Layout
 ![image](https://github.com/user-attachments/assets/3e570a59-3db9-4d00-a34e-7b5e11031142)
 
 mobile layout
+
 ![image](https://github.com/user-attachments/assets/7da4a7c2-f168-44f7-b650-994707a3b509)
 
 
